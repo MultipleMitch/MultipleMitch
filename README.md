@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MultipleMitch
+- 👀 I’m interested in exciting projects in the crypto-sphere!
+- 🌱 I’m currently learning community relations and customer values.
+- 💞️ I’m looking to collaborate on innovative and practical projects!
+- 📫 How to reach me? @multiplemitch
